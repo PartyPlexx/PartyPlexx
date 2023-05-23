@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there Bollywood Night Extravaganza : Introduction Welcome to Bollywood Night, where vibrant colors, infectious beats, and captivating storytelling of Indian cinema come alive! Prepare yourself for an enchanting journey that spans borders and cultures as we invite you to participate in an extraordinary celebration of music, dance, and entertainment for more info visit https://partyplexx.com/
 
 <!--
 **PartyPlexx/PartyPlexx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
